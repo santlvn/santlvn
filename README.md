@@ -23,4 +23,4 @@ owner of @4saintchrist channel on tt.
 
 ---
 
-[github](https://github.com/santlvn) · [tiktok_4saintchrist](https://www.tiktok.com/@4saintchrist) · [telegram](t.me/@santleli)
+[github](https://github.com/santlvn) · [tiktok_4saintchrist](https://www.tiktok.com/@4saintchrist) · [telegram](https://t.me/santleli) 
