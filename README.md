@@ -19,8 +19,8 @@ Here are some ideas to get you started:
 
 > building things, breaking things, building them again.
 
-owner of @4saintchrist and @sant.lvn channel on tt.
+owner of @4saintchrist channel on tt.
 
 ---
 
-[github](https://github.com/santlvn) · [tiktok_4saintchrist](https://www.tiktok.com/@4saintchrist) · [tiktok_santlvn](https://tiktok.com/sant.lvn)
+[github](https://github.com/santlvn) · [tiktok_4saintchrist](https://www.tiktok.com/@4saintchrist) · [telegram](t.me/@santleli)
